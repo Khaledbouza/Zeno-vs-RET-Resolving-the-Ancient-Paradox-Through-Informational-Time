@@ -1,0 +1,1 @@
+# Zeno-vs-RET-Resolving-the-Ancient-Paradox-Through-Informational-Time
